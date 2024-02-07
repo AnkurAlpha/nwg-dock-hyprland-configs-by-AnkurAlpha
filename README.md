@@ -1,0 +1,1 @@
+# nwg-dock-hyprland-configs-by-AnkurAlpha
